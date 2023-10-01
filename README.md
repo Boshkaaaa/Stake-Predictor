@@ -1,7 +1,7 @@
 # Stake-Crash-Predictor
 Stake,Roobet and etc gambling sites predictor
 # Stake Crash Predictor
-[<img src="https://github.com/HacksCoding/microsoft-office-crack/blob/main/qweqwe.png" width="2500"/>](https://cutt.ly/gwbAGvwQ)
+
 
 
 
